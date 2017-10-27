@@ -38,7 +38,7 @@ _วันนี้มีความสุขแบบเอียงๆ_
 เราสามารถยกคำพูดมาได้ด้วย มันจะดูดีไปอีกแบบ
 > การเขียนโปรแกรมมันง่ายจัง ขอยากๆ หน่อย
 
-ถ้างงแนะนำให้ใช้ **google** คลิก [ที่นี่](https://www.google.co.th) ได้นะลองดู
+ถ้างงแนะนำให้ใช้ **facebook** คลิก [ที่นี่](https://www.facebook.com/ppynk.ppor) ได้นะลองดู
 
 เมื่อหายงงแล้วไปกินข้าวดีกว่า เรามีเมนูนำเสนอ
 
@@ -76,7 +76,7 @@ _วันนี้มีความสุขแบบเอียงๆ_
 
 มันแลเรียบๆ เนอะ อยากได้รูปสวยๆ มาแปะ... อะจัดให้
 
-![alt text](https://scontent.fbkk5-6.fna.fbcdn.net/v/t1.0-9/20155972_1222776067867584_8222141954943801824_n.jpg?oh=4ecb5096824d2af420a7d68bd1d16323&oe=5A7D4107)
+![alt text](https://ce59fc4f-a-62cb3a1a-s-sites.googlegroups.com/site/pimlapatpatsadu/home/face.PNG?attachauth=ANoY7cpDxt-gAKFgUy1aENarqZj_VsXKGQC8YgeRcTBj4ulXHWorHK0xb0TBlEngttW7W5Yk4oTb4O5wAQIzicnNQaXeyiUOvqBYQ_G8w5fKWnXY2SBsEMAEW1_ZK6UDxBjsZ25yOLftwouoWNTvwJUQCHYBTiDbsXBttl4SAIGyxELmJSR4n_N3vOh8AUsx75Q0pY0PU18JcYLz3d5k_bEXOxChfk45cA%3D%3D&attredirects=0)
 
 อันนี้ยากหน่อย ของคนแก่ๆ ชื่อราง เราเรียกมันว่า ตาราง!!
 
